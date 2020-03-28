@@ -1,4 +1,5 @@
 # BRIAN CAVANAUGH
+### LinkedIn Profile: https://www.linkedin.com/in/briancavanaugh/
 
 ## SUMMARY
 *	Consultant with 23 years of professional information technology experience.
