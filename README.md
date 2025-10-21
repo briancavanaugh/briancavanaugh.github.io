@@ -1,2 +1,2 @@
-# BRIAN CAVANAUGH
-### LinkedIn Profile: https://www.linkedin.com/in/briancavanaugh/
+# Brian Cavanaugh
+### [LinkedIn Profile](https://www.linkedin.com/in/briancavanaugh/)
